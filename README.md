@@ -1,2 +1,2 @@
-# Poster for VISEF 2024
+# Poster KHKT 2024
 
